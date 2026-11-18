@@ -1,4 +1,4 @@
-Laotians drop many Thai classifiers but still normally use some major Thai classifiers. Here are 20 good examples:
+Laotians drop many Thai classifiers but still normally use some major Thai classifiers.
 
 1. ຄົນ (คน) – people
 2. ໂຕ (ตัว) – animals and general objetcs (and also sizing in Lao as in tuanoy tuahyai) 
